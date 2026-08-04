@@ -9,7 +9,7 @@ the long long holiday, centaura, inglorious basterd, call of duty, ongezellig, p
 
 dni : homophobics, troublesome & ppl who can't respect other's boundaries.
 
- — i dont support any ideologies of my cosplays nor ocs.
+ — nein,i do not support any ideologies of my cosplays nor ocs.
 
 @ lid<3
 
