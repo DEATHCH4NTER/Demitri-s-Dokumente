@@ -13,6 +13,8 @@ dni : homophobics, troublesome & ppl who can't respect other's boundaries.
 
 : most of my ponies / skins has c+h on it so go on. dont be scared to cudd when im alone 
 
+when im already comfortable enough with someone, i may talk a lot, sometimes. 
+
 @ lid<3
 
 tschüss. 
