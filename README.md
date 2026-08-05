@@ -2,7 +2,7 @@
 gruße, ich bin Demi Han Schell, call me Demi.
 ⟩⟩ he/any, prefer he/him more.
 
- not a very talkative person, but int & c+h freely, i don't really mind
+ not a very talkative person, but int & c+h freely, i don't really mind but iwc.
 
 current interest : Guts & Blackpowder, WW2, 
 the long long holiday, centaura, inglorious basterd, call of duty, ongezellig, pokemon, mlbb (more but currently focused on history)
