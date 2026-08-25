@@ -5,7 +5,7 @@ gruße, ich bin Demi Han Schell, call me Demi.
  not a very talkative person, but int & c+h freely, i don't really mind but iwc.
 
 current interest : Guts & Blackpowder, WW2, 
-the long long holiday, centaura, inglorious basterd, call of duty, ongezellig, pokemon, mlbb (more but currently focused on history)
+the long long holiday, centaura, inglorious basterd, T-34, Black Sheep (2010. its about ww2 german vs soviets), call of duty, ongezellig, pokemon, mlbb (more but currently focused on history)
 
 dni : homophobics, troublesome & ppl who can't respect other's boundaries.
 
