@@ -2,6 +2,7 @@
 gruße, ich bin Demi Han Schell, call me Demi.
 ⟩⟩ he/any, prefer he/him more.
 
+
  not a very talkative person, but int & c+h freely, i don't really mind but iwc.
 
 current interest : Guts & Blackpowder, WW2, 
@@ -17,4 +18,4 @@ when im already comfortable enough with someone, i may talk a lot, sometimes.
 
 @ lid<3 — meine liebe, ich liebe dich.
 
-tschüss. 
+auf wiedersehen.
