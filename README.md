@@ -1,5 +1,5 @@
 # Demitri-s-Dokumente
-gruße, ich bin Demi Han Schell, call me Demi.
+gruße, ich bin Demitri Han Schell, call me Demi.
 ⟩⟩ he/any, prefer he/him more.
 
 
