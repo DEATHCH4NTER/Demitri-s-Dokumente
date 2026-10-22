@@ -17,7 +17,7 @@ dni : homophobics, troublesome & ppl who can't respect other's boundaries. do no
 
 when im already comfortable enough with someone, i may talk a lot, sometimes. i love making historical ocs ja especially ww2
 
-*BYI :* still working.
+*if you're a sensitive person. i dont recommend having conversations with me.*
 
 @ lid<3 — meine liebe, ich liebe dich.
 
