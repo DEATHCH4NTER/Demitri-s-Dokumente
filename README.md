@@ -2,7 +2,7 @@
 gruße, ich bin Demitri Han Schell, call me Demi.
 ⟩⟩ he/any, prefer he/him more . intj-t 5w6
 
-i have a lot of fictionkins but im Lieutenant Archie Hicox from Inglorious Basterd.
+*i have a lot of fictionkins but im Lieutenant Archie Hicox from Inglorious Basterd.*
 
  not a very talkative person, but int & c+h freely, i don't really mind but iwc.
 
