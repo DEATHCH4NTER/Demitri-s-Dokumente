@@ -13,12 +13,12 @@ the long long holiday, centaura, inglorious basterd, T-34, Black Sheep (2010. it
 
  — nein, i do not support any ideologies of my cosplays nor ocs. dont think i support any ideologies or propaganda. do not call me a nazi or something like that it irritates me.
 
-: most of my ponies / skins has c+h on it so go on. dont be scared to cudd when im alone 
+*: most of my ponies / skins has c+h on it so go on. dont be scared to cudd when im alone* 
 
 i can be cold but when im already comfortable enough with someone, i may talk a lot, sometimes. i love making historical ocs ja especially ww2
 
 *if you're a sensitive person. i dont recommend having conversations with me.*
 
-@ lid<3 — meine liebe, ich liebe dich.
+*@ lid<3 — meine liebe, ich liebe dich.*
 
 auf wiedersehen.
