@@ -1,6 +1,6 @@
 # Demitri-s-Dokumente
 gruße, ich bin Demitri Han Schell, call me Demi.
-⟩⟩ he/any, prefer he/him more . intj-t 5w6
+⟩⟩ he/any, prefer he/him more . intj-t 5w6 so/sp 513
 
 *i have a lot of fictionkins but im Lieutenant Archie Hicox from Inglorious Basterd.*
 
