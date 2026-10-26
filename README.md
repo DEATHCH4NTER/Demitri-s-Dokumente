@@ -15,7 +15,7 @@ the long long holiday, centaura, inglorious basterd, T-34, Black Sheep (2010. it
 
 *: most of my ponies / skins has c+h on it so go on. dont be scared to cudd when im alone* 
 
-i can be cold but when im already comfortable enough with someone, i may talk a lot, sometimes. i love making historical ocs ja especially ww2
+i may be cold but when im already comfortable enough with someone, i may talk a lot, sometimes. i love making historical ocs ja especially ww2
 
 *if you're a sensitive person. i dont recommend having conversations with me.*
 
