@@ -7,7 +7,7 @@ gruße, ich bin Demitri Han Schell, call me Demi.
  not a very talkative person, but int & c+h freely, i don't really mind but iwc.
 
 current interest : Guts & Blackpowder, WW2, 
-the long long holiday, centaura, inglorious basterd, T-34, Black Sheep (2010. its about ww2 german vs soviets), call of duty, ongezellig/onion dweller, pokemon, mlbb, Girls und panzer, Highschool fleet, azur lane, Record of Ragnarok, JJBA, American Psycho, world of warships (more but currently focused on history especially ww2 or the ships)
+the long long holiday, centaura, inglorious basterd, T-34, Black Sheep (2010. its about ww2 german vs soviets), call of duty, ongezellig/onion dweller, pokemon, mlbb, Girls und panzer, Highschool fleet, azur lane, Record of Ragnarok, JJBA, American Psycho, world of warships, das boot (more but currently focused on history especially ww2 or the ships)
 
 *dni : homophobics, troublesome & ppl who can't respect other's boundaries. do not be an asshole*
 
